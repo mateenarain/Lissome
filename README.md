@@ -51,7 +51,7 @@ You can visit the live version here (once hosted via GitHub Pages):
 
 ## 📬 Contact
 
-If you'd like to get in touch, feel free to contact me via email at **mateenzain2022@gmail.com**
+If you'd like to get in touch, feel free to contact me via email at **mateen.naeem2004@gmail.com**
 
 ---
 
